@@ -1,4 +1,4 @@
-## oiee, tenha dó quando for me dar nota kkk 💙
+## oiee, tenha dó quando for me dar nota💙
 
 
 meu nome é mel 🖤
